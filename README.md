@@ -49,4 +49,4 @@ Beyond technical skills, I believe that a successful developer must also **under
 
 ### 🤝 Open to Collaboration and New Opportunities!
 Feel free to **connect** and **reach out** for collaborations!  
-[![LinkedIn](www.linkedin.com/in/denys-s-362a7581)
+[LinkedIn](www.linkedin.com/in/denys-s-362a7581)
