@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Denys Sliusarchyk (aka Denvex) 🚀
+# 👋 Hi, I'm Denys Sliusarchyk (aka DenVex) 🚀
 
 A **seasoned professional with 15+ years of experience** in **business management and IT project execution**, including international initiatives and the successful launch of companies in **Ukraine, Kazakhstan, and Poland**.
 
