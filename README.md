@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Denys Sliusarchyk (aka DenVex) 🚀
 
-A **seasoned professional with 15+ years of experience** in **business management and IT project execution**, including international initiatives and the successful launch of companies in **Ukraine, Kazakhstan, and Poland**.
+A seasoned professional with 15+ years of experience in business management and IT project execution, including international initiatives and the successful launch of companies in Ukraine, Kazakhstan, and Poland. Currently starting my professional journey in the United States.
 
 My expertise includes **business development, leading large teams, implementing technological solutions**, and collaborating with top **software and hardware vendors**.
 
